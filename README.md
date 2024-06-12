@@ -151,6 +151,13 @@ https://www.loom.com/share/93ae437a878f4371be8a9f2aa75ed2da?sid=5d34801b-7281-46
 
 # Developers
 Aditi Mehta
+<br>
+Anusha Arora
+
+<br>Arshiya Garg
+
+<br>
+Vania Goel
 
 
 
